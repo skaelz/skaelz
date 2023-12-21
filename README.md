@@ -8,8 +8,8 @@ I bring 5+ years of experience as a Data Analyst and Sales Operations profession
 
 ## Experience Highlights
 
-- **Enterprise Account Executive** at Funraise: Exceeded $1MM quotas through data-driven strategies. Led the team in sales operations training and quota attainment. 
-- **Senior Sales Analyst** at Shift Technologies: Analyzed data, optimized operations, performed sales operations, secured $9MM in revenue.
+- **Enterprise Account Executive** at Funraise 10MM$ series B fintech startup: Exceeded $1MM quota through data-driven strategies. Led the team in sales operations training and quota attainment. 
+- **Senior Sales Analyst** at Shift Technologies $500MM automotive startup : Analyzed data, optimized operations, performed sales operations, secured $9MM in revenue.
 
 ## Featured Projects
 
