@@ -4,7 +4,7 @@ I'm passionate about data analytics, specializing in SQL, Tableau, Salesforce, H
 
 ## About Me
 
-I bring 5+ years of experience as a Data Analyst and Sales Operations professional. I've saved or generated over $15MM in revenue across industries through data-driven strategies in sales and market analysis.
+I bring 7+ years of experience and I've saved or generated over $15MM in revenue across industries through data-driven strategies.
 
 ## Experience Highlights
 
