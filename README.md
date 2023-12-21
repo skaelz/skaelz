@@ -1,6 +1,6 @@
 # Hi, I'm Nolan! 👋
 
-I'm passionate about data analytics, specializing in SQL, Tableau, Salesforce, HubSpot and Excel. Based in El Paso, Texas, I love transforming complex data into actionable insights while sipping espresso.
+I'm passionate about data analytics, specializing in SQL, Excel, Tableau, Salesforce. Based in El Paso, Texas, I love transforming complex data into actionable insights while sipping espresso.
 
 ## About Me
 
