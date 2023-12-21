@@ -24,4 +24,4 @@ Explore these projects in detail [https://github.com/skaelz/Projects]!
 
 Reach out at nolanmarkwinn@gmail.com, 360-908-7984, or at my LinkedIn [https://www.linkedin.com/in/nolanwinn/]. Beyond data, I'm passionate about agricultrual philanthropy, exotic reptiles, and the great outdoors!
 
-Looking forward to connecting and exploring data opportunities with you!
+Looking forward to connecting and driving growth for your team! 
